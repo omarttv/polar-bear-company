@@ -1,1 +1,1 @@
-# polar-bear-company
+# polar bear company
